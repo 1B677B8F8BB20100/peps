@@ -1,0 +1,1 @@
+Please create and link to some means to contact you and/or a place for people interested in the project to be able to chat. Could be an Urbit group, Telegram chat, subreddit. Whatever works for now. Thank you!
